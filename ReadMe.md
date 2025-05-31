@@ -28,4 +28,22 @@
 
 📌 联系方式：
 
-有需求的朋友可以私信我获取详细信息，服务价格面议。
+海外耐用账号出售
+https://guojizhanghao.top 
+
+国内各大APP账号出售
+https://quanzhanghao.cc     
+
+全球APP刷粉-涨粉 
+https://zhangfensi.top 
+
+全球手机卡经销商
+https://shimingka.top 
+
+接码：
+https://kuaijiema.top
+
+人工客服：
+https://t.me/hwdb8999
+
+<img src="pic/bbb.png" alt="微信接码服务" border="0">
